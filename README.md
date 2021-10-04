@@ -1,3 +1,3 @@
 ### working on stuff..
 
-!()[https://c.tenor.com/m3mKtgirABgAAAAC/muppet-kermit-the-frog.gif]
+![](https://c.tenor.com/m3mKtgirABgAAAAC/muppet-kermit-the-frog.gif)
