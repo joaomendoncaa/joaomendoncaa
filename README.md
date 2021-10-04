@@ -1,7 +1,3 @@
-# Hi there 👋
+### working on stuff..
 
-🔭 I’m currently working on my portfolio and some great projects to go with it!
-
-check it out on ✨ http://www.joaomendonca.net ✨
-
-
+!()[https://c.tenor.com/m3mKtgirABgAAAAC/muppet-kermit-the-frog.gif]
