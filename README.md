@@ -1,1 +1,1 @@
-![](https://c.tenor.com/m3mKtgirABgAAAAC/muppet-kermit-the-frog.gif)
+I don't want to be constantly updating this readme, but [I have a website!](joaomendonca.net)
